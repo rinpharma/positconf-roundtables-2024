@@ -11,4 +11,6 @@ A really important role we lean on our advisory board for is also to capture the
 if we plan to run any particularly popular round tables twice, we'd ideally have to moderators. As you do your final vote, please do consider what 
 topics you'd like to place yourself in the centre of the discussion for, by taking on responsibility of facilating the discussion.
 
+Please complete your final vote before the 18th (our next meeting).
+
 BW, James, Katie, Phil and Harvey
